@@ -5,7 +5,7 @@
 
  **Favorites**
 >  **Hobbies**
->   1. Dnacing
+>   1. Dancing
 >   2. Drawing
 >   3. Eating
 
