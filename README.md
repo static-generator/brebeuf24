@@ -1,2 +1,2 @@
 # brebeuf24
-wassu
+# umuwi ka na, baby
